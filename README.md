@@ -1,2 +1,2 @@
-# Maarte
+# Mariam Artworks
 Fusion of Creativity
